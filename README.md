@@ -1,0 +1,1 @@
+# sk-diary.github.io
